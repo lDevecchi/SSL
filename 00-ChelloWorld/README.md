@@ -1,0 +1,1 @@
+#Front Pgage RESOLUTION
