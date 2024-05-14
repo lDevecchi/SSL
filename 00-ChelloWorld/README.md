@@ -1,1 +1,1 @@
-#Front Pgage RESOLUTION
+#Front Page RESOLUTION
